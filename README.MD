@@ -1,6 +1,6 @@
 # Description
 
-This is a curated logo of university over the world. You can help and contribute to enrich content, because it might be useful.
+This is a curated logo of university over the world. You can help and contribute to enrich content, because it might be useful 😄
 
 ## Country List
 
