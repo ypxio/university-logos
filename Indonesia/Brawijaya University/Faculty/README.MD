@@ -1,0 +1,1 @@
+this notes should be contains any material that related to the university/faculty/departement/study program such as link to website, logo guidelines, etc
