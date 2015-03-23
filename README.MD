@@ -1,3 +1,3 @@
-this is curated list to university logo in the world wide. please help and contribute to enrich content.
+This is a curated list of university logo in the world wide. You can help and contribute to enrich content.
 
-credit to http://www.cas.org/movetoweb/template for template logo image
+Credit to http://www.cas.org/movetoweb/template for template logo image
